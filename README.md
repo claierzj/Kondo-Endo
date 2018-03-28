@@ -1,2 +1,2 @@
 # Kondo-Endo
-Try something Japanese!
+Eat sashimi every day
